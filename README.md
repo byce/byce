@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @byce
 - 👀 I’m interested in ... you
-- 🌱 I’m currently learning ... where you live
+- 🌱 I’m currently learning ... about you
 - 💞️ I’m looking to collaborate ... with you
-- 📫 How to reach me ... outside your window
+- 📫 How to reach me ... behind you
